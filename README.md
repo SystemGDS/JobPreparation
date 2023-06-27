@@ -34,3 +34,10 @@ comunicador, por escrito y oralmente. <br>
 cumplimiento de las tareas asignadas.
 
 Obtando Laborar en el mundo TECH.
+
+No dudes en Contactarme que juntos prodremos realizar grandes Proyectos. <br>
+[LinkedIn](https://www.linkedin.com/in/jorge-ramirez-del-aguila/)
+[Portafolio](https://portafolio-jorda.netlify.app/)
+
+Correo: systemgds@gmail.com
+
