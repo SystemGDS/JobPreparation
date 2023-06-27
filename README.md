@@ -29,7 +29,7 @@ Escucha activa, AutoDidacta
  Capacidad de trabajo bajo presión <br>
  Formación y orientación del personal <br>
  Marcado Vocación de servicio al cliente (externo e interno Excelente
-comunicador, por escrito y oralmente.
+comunicador, por escrito y oralmente. <br>
  Orden, Planeación, puntualidad y responsabilidad en el
 cumplimiento de las tareas asignadas.
 
